@@ -11,6 +11,7 @@
 ### Hope to make progress with you  
 ![Yang's github stats](https://github-readme-stats.vercel.app/api?username=yang1955316899&theme=cobalt)  
 
+## QQ：1955316899
 ---
 ## 我的技术栈
 ### 𝗠𝘆 𝗧𝗲𝗰𝗸 𝗦𝘁𝗮𝗰𝗸
